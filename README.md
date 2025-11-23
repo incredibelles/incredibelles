@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @incredibelles we are FTC teame 25149
+- 👋 Hi, We are the @incredibelles.ftc, team 25149.
 
 
 <!---
